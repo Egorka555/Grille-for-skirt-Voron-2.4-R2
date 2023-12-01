@@ -7,7 +7,7 @@
 ![Grille for skirt Voron 2.4 R2](images/004.jpg)
 ![Grille for skirt Voron 2.4 R2](images/005.jpg)
 
-![Grille for skirt Voron 2.4 R2]Grille for skirt Voron 2.4 R2/images/001.jpg
+![Grille for skirt Voron 2.4 R2](Grille for skirt Voron 2.4 R2/images/001.jpg)
 
 
 
